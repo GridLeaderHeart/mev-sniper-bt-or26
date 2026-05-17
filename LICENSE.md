@@ -1,4 +1,4 @@
-# 
+# exclusive bot sniper MEV ferramentas é o melhor bot sniper MEV ferramentas com take-profit e leilões de gas prioritários. Seguro, confiável e otimizado para estratégias MEV,
 
 
 
